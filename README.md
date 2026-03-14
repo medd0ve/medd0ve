@@ -8,7 +8,7 @@
 ➴　﹒　𐄑　 typogrophy　:　ESFP-T 9w8 Sx/Sp [Spl-Sp6-Sx3] Sx[U]ai Mel-Chol elvf EIE . Fandoms　:   homestuck, eddsworld, 
  　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　gachiakuta, 3fs, Resident Evil, FNaF, Dandys World,
  　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　Clooless, PlentyXD, Starters - movieunleashers, The Pitt
-  　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　   　 　 　 　 　 　 　 　 　        Friday the 13th, CRK, MC
+ 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　Friday the 13th, CRK, MC
                                                                     
 ![image](https://64.media.tumblr.com/9813572219ad3b706a6422ef3d9648df/17e56c69ffb64f87-d5/s2048x3072/5f738b3fa7767f2a93f52ff0fd5711c0c26d252a.pnj)
 

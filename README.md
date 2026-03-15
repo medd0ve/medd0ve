@@ -1,7 +1,7 @@
 ![image](https://64.media.tumblr.com/aae510c798847a00b6b345b9bbaca505/17e56c69ffb64f87-13/s2048x3072/709eb67adc2150a01f7da0af6e0f30e5de580d92.pnj)
 
 
-﹒　𓊆†𓊇　⏖　Beef Jerky / Dove　｡　　﹗
+﹒　𓊆†𓊇　⏖　Beef Jerky / Dovie　｡　　﹗
 
 ![image](https://64.media.tumblr.com/3edc656826f91f2139a78484c13d43bc/17e56c69ffb64f87-49/s2048x3072/122fa18f922b144df60712d26d04d0d187fa3c3a.pnj)
 

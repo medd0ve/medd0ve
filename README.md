@@ -5,7 +5,7 @@
 
 ![image](https://64.media.tumblr.com/3edc656826f91f2139a78484c13d43bc/17e56c69ffb64f87-49/s2048x3072/122fa18f922b144df60712d26d04d0d187fa3c3a.pnj)
 
-➴　﹒　𐄑　 typogrophy　:　ESFP-T 9w8 Sx/Sp [Spl-Sp6-Sx3] Sx[U]ai Mel-Chol elvf EIE . Fandoms　:   homestuck, eddsworld, 
+➴　﹒　𐄑　 enneagrams　:　ESFP-T 9w8 Sx/Sp [Spl-Sp6-Sx3] Sx[U]ai Mel-Chol elvf EIE . Fandoms　:   homestuck, eddsworld, 
  　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　gachiakuta, 3fs, Resident Evil, FNaF, Dandys World,
  　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　Clooless, PlentyXD, Starters - movieunleashers, The Pitt
  　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　 　Friday the 13th, CRK, MC
